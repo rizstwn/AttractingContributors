@@ -8,5 +8,14 @@
 - Cook
 - Jogging
 - darts
-- Sleeping
 - Sleep all day
+- master programming
+- Thrifting
+- Studying
+- Make apps
+- Sleeping x8
+- Watching anime x2
+- YouTube
+- Driving
+- Travering
+- Soccer
