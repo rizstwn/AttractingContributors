@@ -8,6 +8,7 @@
 - Cook
 - Jogging
 - darts
+- master programming
 - Thrifting
 - Studying
 - Make apps
