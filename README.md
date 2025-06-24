@@ -19,3 +19,4 @@
 - Driving
 - Travering
 - Soccer
+- Reading Manga
