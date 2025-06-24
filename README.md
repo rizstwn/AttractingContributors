@@ -11,8 +11,9 @@
 - Thrifting
 - Studying
 - Make apps
-- Sleeping x6
+- Sleeping x7
 - Watching anime x2
 - YouTube
 - Driving
 - Travering
+- Soccer
